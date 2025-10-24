@@ -1,1 +1,5 @@
-<img width="288" height="511" alt="image" src="https://github.com/user-attachments/assets/2d036d84-33a6-4a2e-95e1-3070c514d496">
+
+
+
+https://www.figma.com/design/huITdTY9QAp24kRImM0y2l/redesign--Community-?node-id=0-1&t=Bs3ReEiNQBfC5goL-1
+
